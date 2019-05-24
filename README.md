@@ -1,4 +1,4 @@
-# Pledge
+
 <p>I, Jenny, will take EVERY OPPORTUNITY to advance myself with abandon</p>
 <p><i>Good intentions</i> <em>WILL NOT</em> achieve my goals</p>
 <p><i>Success</i> is <em>NOT</em> what I know, but <em>WHAT I DO</em> with what I know</p>
